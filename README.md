@@ -7,4 +7,4 @@ Read more in the [article](https://www.worldscientific.com/doi/abs/10.1142/S0218
 
 ## Getting help
 
-Please contact ahmet@evercoin.com
+Please contact sfa.alptekin@gmail.com
